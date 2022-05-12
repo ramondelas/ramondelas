@@ -1,5 +1,5 @@
 - 👋 Oi, eu sou ramon69
-- 👀 Estou interessado em homens
+- 👀 Estou interessado em 
 - 🌱 Atualmente estou atualizando...
 Estou 💞️ - Pesquisando em...
 - 📫 Como chegar até mim...ramon.mattozo@escola.pr.gov.br
